@@ -1,4 +1,4 @@
-</div><img width="2048" height="192" alt="Polkadot Lace Divider" src="https://github.com/user-attachments/assets/a2842d13-dd84-46cb-acaa-77b91442ca86" />
+<img src="https://media.discordapp.net/attachments/1050251291693170689/1496670395472937000/Polkadot_Lace_Divider.png?ex=69eaba6d&is=69e968ed&hm=06bd186c8ce1a8cc00a8f14b58358e7125335722f62c5534f8e27674487a174d&=&format=webp&quality=lossless&width=1276&height=120">
 
 
 <div align="center">
@@ -47,4 +47,4 @@ I love my beautiful handsome pink haired bf ♡⸜(ˆᗜˆ˵ )⸝♡ [ https://g
 <img src="https://static.wikia.nocookie.net/danganronpa/images/e/ee/Danganronpa_2_Island_Mode_Mikan_Tsumiki_Pixel_Icon_%283%29.gif/revision/latest?cb=20170817093245">
 </div>
 ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
-</div><img width="2048" height="192" alt="Polkadot Lace Divider" src="https://github.com/user-attachments/assets/a2842d13-dd84-46cb-acaa-77b91442ca86" />
+<img src="https://media.discordapp.net/attachments/1050251291693170689/1496670395472937000/Polkadot_Lace_Divider.png?ex=69eaba6d&is=69e968ed&hm=06bd186c8ce1a8cc00a8f14b58358e7125335722f62c5534f8e27674487a174d&=&format=webp&quality=lossless&width=1276&height=120">
