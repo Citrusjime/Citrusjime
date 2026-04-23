@@ -1,5 +1,4 @@
-<img width="2048" height="192" alt="Polkadot Lace Divider" src="https://github.com/user-attachments/assets/6f6c0f37-4889-4002-9cb2-7e19ef8e333b" />
-
+<img src="https://github.com/user-attachments/assets/6f6c0f37-4889-4002-9cb2-7e19ef8e333b">
 
 <div align="center">
 ʜᴇʟʟᴏ !!
@@ -46,4 +45,4 @@ I love my beautiful handsome pink haired bf ♡⸜(ˆᗜˆ˵ )⸝♡ [ https://g
 <img src="https://static.wikia.nocookie.net/danganronpa/images/e/ee/Danganronpa_2_Island_Mode_Mikan_Tsumiki_Pixel_Icon_%283%29.gif/revision/latest?cb=20170817093245">
 </div>
 ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
-<img width="2048" height="192" alt="Polkadot Lace Divider" src="https://github.com/user-attachments/assets/6f6c0f37-4889-4002-9cb2-7e19ef8e333b" />
+<img src="https://github.com/user-attachments/assets/6f6c0f37-4889-4002-9cb2-7e19ef8e333b">
