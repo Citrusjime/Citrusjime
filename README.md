@@ -46,7 +46,6 @@ I love my beautiful handsome pink haired <a href="https://github.com/LordStarscr
 <div align="center">
 <img src="https://static.wikia.nocookie.net/danganronpa/images/e/ee/Danganronpa_2_Island_Mode_Mikan_Tsumiki_Pixel_Icon_%283%29.gif/revision/latest?cb=20170817093245">
 </div>
-ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
 
 <div align="center">
 Atabook <a href="https://citrusjime.atabook.org"><img src="https://media.discordapp.net/attachments/1050251291693170689/1496729522802921523/Citrus_Pixel.webp?ex=69eaf17e&is=69e99ffe&hm=b2b3d43f9eff5c0ae56b915623606e21009ced9019a31b769d7a2efa4839f5cc&=&animated=true" /></a>
