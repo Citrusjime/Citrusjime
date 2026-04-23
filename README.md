@@ -31,7 +31,7 @@
 
 
 <div align="center">
-<img width="1200" height="675" alt="Hajime Hinata Banner" src="https://github.com/user-attachments/assets/06add6d9-71f5-4e9e-b17a-f9924e7b7279" />
+<img src="https://media.discordapp.net/attachments/1050251291693170689/1496670449743040512/Hajime_Hinata_Banner.png?ex=69eaba7a&is=69e968fa&hm=4c189066077f747eeef93569a5cce769eae840cb55ce91f1cd5de40cd2fb28b8&=&format=webp&quality=lossless&width=855&height=481">
 </div>
 
 <div align="center">
