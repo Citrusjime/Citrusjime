@@ -47,6 +47,24 @@ I love my beautiful handsome pink haired <a href="https://github.com/LordStarscr
 <img src="https://static.wikia.nocookie.net/danganronpa/images/e/ee/Danganronpa_2_Island_Mode_Mikan_Tsumiki_Pixel_Icon_%283%29.gif/revision/latest?cb=20170817093245">
 </div>
 
+ᅠᅠᅠᅠᅠᅠᅠᅠ
+
+
+
+
+<div align="center">
+vv This is me IRL vv
+</div>
+
+<div align="center">
+<img width="435" height="587" alt="Hajime Nendroid" src="https://github.com/user-attachments/assets/68202b54-8fd0-406e-8f3f-2478bd28ca32" />
+</div>
+
+<div align="center">
+[ My picture btw ✧*。٩(ˊᗜˋ*)و✧*。]
+</div>
+ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
+
 <div align="center">
 Atabook <a href="https://citrusjime.atabook.org"><img src="https://media.discordapp.net/attachments/1050251291693170689/1496729522802921523/Citrus_Pixel.webp?ex=69eaf17e&is=69e99ffe&hm=b2b3d43f9eff5c0ae56b915623606e21009ced9019a31b769d7a2efa4839f5cc&=&animated=true" /></a>
 </div>
