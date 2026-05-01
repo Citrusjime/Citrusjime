@@ -1,4 +1,4 @@
-<img src="https://media.discordapp.net/attachments/1050251291693170689/1496670395472937000/Polkadot_Lace_Divider.png?ex=69eaba6d&is=69e968ed&hm=06bd186c8ce1a8cc00a8f14b58358e7125335722f62c5534f8e27674487a174d&=&format=webp&quality=lossless&width=1276&height=120">
+<img src="https://64.media.tumblr.com/d9523285a39c0b28e407cb145a43fa71/188197d48e920db6-f2/s1280x1920/39872301049d5119c20c3b800abd204cafc8641d.pnj">
 
 
 <div align="center">
@@ -33,7 +33,7 @@
 
 
 <div align="center">
-<img src="https://media.discordapp.net/attachments/1050251291693170689/1496670449743040512/Hajime_Hinata_Banner.png?ex=69eaba7a&is=69e968fa&hm=4c189066077f747eeef93569a5cce769eae840cb55ce91f1cd5de40cd2fb28b8&=&format=webp&quality=lossless&width=855&height=481">
+<img src="https://64.media.tumblr.com/33d68947ee1d95508a5b408fcf17f831/dd65d469a313a4d8-b6/s736x414/03426965d3022ae5a18340f15dda5dacc2d19f5c.jpg"
 </div>
 
 <div align="center">
@@ -74,7 +74,7 @@ Komahina <a href="https://cdn.discordapp.com/attachments/1050251291693170689/149
 </div>
 
 
-<img src="https://media.discordapp.net/attachments/1050251291693170689/1496670395472937000/Polkadot_Lace_Divider.png?ex=69eaba6d&is=69e968ed&hm=06bd186c8ce1a8cc00a8f14b58358e7125335722f62c5534f8e27674487a174d&=&format=webp&quality=lossless&width=1276&height=120">
+<img src="https://64.media.tumblr.com/d9523285a39c0b28e407cb145a43fa71/188197d48e920db6-f2/s1280x1920/39872301049d5119c20c3b800abd204cafc8641d.pnj">
 
 
 
