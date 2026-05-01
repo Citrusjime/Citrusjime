@@ -66,11 +66,11 @@ vv This is me IRL vv
 ᅠᅠᅠᅠᅠᅠᅠᅠᅠ
 
 <div align="center">
-Atabook <a href="https://citrusjime.atabook.org"><img src="https://media.discordapp.net/attachments/1050251291693170689/1496729522802921523/Citrus_Pixel.webp?ex=69eaf17e&is=69e99ffe&hm=b2b3d43f9eff5c0ae56b915623606e21009ced9019a31b769d7a2efa4839f5cc&=&animated=true" /></a>
+Atabook <a href="https://citrusjime.atabook.org"><img src="https://64.media.tumblr.com/82841c0f439b3ff42936a7cdc64a73a8/cebb780cb1e50a84-26/s75x75_c1/948eca56dd61070b72da5624fb8c226b94402519.gifv"></a>
 </div>
 
 <div align="center">
-Komahina <a href="https://cdn.discordapp.com/attachments/1050251291693170689/1496737650139463750/Komahina_Makeout_MMD_Gif.gif?ex=69eaf90f&is=69e9a78f&hm=7b81bc1712b4142c034f8562e7b718b5b0450be1c2fac92fa9c0d704a2234ced"><img src="https://media.discordapp.net/attachments/1050251291693170689/1496732738861142077/Orange_Juice_Pixel.webp?ex=69eaf47c&is=69e9a2fc&hm=e08e6f103016418d4ef4bbdf7c863264f315c6393e74307741863d240bf4bb49&=&animated=true" /></a>
+Komahina <a href="https://64.media.tumblr.com/8d6d86f50bfa862717a6e2a98c0988dc/795db611ac1b8e0e-aa/s540x810/e607a72879a71a7006e9cb745e6428c014e95df9.gifv"><img src="https://64.media.tumblr.com/9d8a690b80e7dd806b22fd48fa65d7c5/cebb780cb1e50a84-7e/s75x75_c1/d5f956c0ed7ea0575552b4f1aa2938e51304011e.gifv"></a>
 </div>
 
 
