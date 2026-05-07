@@ -6,12 +6,13 @@
 </div>
 
 <div align="center">
-ᴍᴇᴅ :: ʜᴀᴊɪᴍᴇ :: ɪʙᴜᴋɪ :: ᴅᴏᴄ
+ᴍᴇᴅ :: ʜᴀᴊɪᴍᴇ :: ɪʙᴜᴋɪ :: sʜᴜɪᴄʜɪ :: ᴅᴏᴄ
 </div>
 
 <div align="center">
 <img src="https://static.wikia.nocookie.net/danganronpa/images/4/49/Danganronpa_2_Hajime_Hinata_Pixel_Sprites_%2802%29.gif/revision/latest?cb=20170816150123">
 <img src="https://static.wikia.nocookie.net/danganronpa/images/3/3d/Danganronpa_2_Island_Mode_Ibuki_Mioda_Pixel_Icon_%283%29.gif/revision/latest?cb=20170828151426">
+<img src="https://static.wikia.nocookie.net/danganronpa/images/c/c7/Shuichi_Saihara_Bonus_Mode_Pixel_Icon_%287%29.gif/revision/latest?cb=20170626133206">
 </div>
 
 <div align="center">
