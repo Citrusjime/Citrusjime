@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/d9523285a39c0b28e407cb145a43fa71/188197d48e920db6-f2/s1280x1920/39872301049d5119c20c3b800abd204cafc8641d.pnj">
+<img src="https://files.catbox.moe/tclo3u.webp">
 
 
 <div align="center">
@@ -75,7 +75,7 @@ Komahina <a href="https://64.media.tumblr.com/8d6d86f50bfa862717a6e2a98c0988dc/7
 </div>
 
 
-<img src="https://64.media.tumblr.com/d9523285a39c0b28e407cb145a43fa71/188197d48e920db6-f2/s1280x1920/39872301049d5119c20c3b800abd204cafc8641d.pnj">
+<img src="https://files.catbox.moe/tclo3u.webp">
 
 
 
